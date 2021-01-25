@@ -1,1 +1,1 @@
-# Total_Pary_Kill
+# Total_Party_Kill
